@@ -15,8 +15,8 @@
 
 
 📫 How to reach me:
-- [Your Email](bryokay18@gmail.com)
-- [LinkedIn Profile](https://www.linkedin.com)
+- [My Email](bryokay18@gmail.com)
+- [LinkedIn Profile](https://www.linkedin.com/in/briankamau2024/)
 
 
 <!---
